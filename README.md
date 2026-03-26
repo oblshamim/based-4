@@ -12,3 +12,4 @@ one night stand
 made my day
 i want you
 i can help her
+my life my rule
